@@ -48,3 +48,7 @@ I have matched the list as closely as possible to the products that I own. Howev
 ### [Gaming Keyboard](https://www.amazon.com/Redragon-K689-PRO-Mechanical-Hot-swappable/dp/B0DK8WN5B7/ref=sr_1_3?crid=N22Z84RRA85B&dib=eyJ2IjoiMSJ9.c1vJshh4u99ES1c647su7Q.OtZIfCktviH7uEYeSLz8Y4636lCrtROX2v-BNyYl2Vs&dib_tag=se&keywords=redragon%2Bwyvern%2Bpro&qid=1748121812&sprefix=redragon%2Bwyvern%2Bpro%2Caps%2C328&sr=8-3&th=1)
 
 ### [Gaming Mouse](https://a.co/d/2Wu7yXB)
+
+### [Gaming Mic](https://www.amazon.com/FIFINE-Microphone-Recording-Jack-AmpliGame-AM8PROT/dp/B0FLDM5BSX?th=1)
+
+### [Webcam](https://emeet.com/products/webcam-s600)
